@@ -18,6 +18,7 @@
 - [LinkedIn](https://www.linkedin.com/in/sanskrutipawarsinhgad/)
 - [Email](sanskrutipawar00@gmail.com)
 -[pratilipi](https://marathi.pratilipi.com/user/sanskruti-pawar-98c8o62g9p)
+-[microsoft-learn](https://learn.microsoft.com/en-us/users/sanskrutipawar-2569/)
 
 📚 Hobbies: When I'm not coding, I enjoy reading books and writing poems.
 
