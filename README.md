@@ -1,4 +1,4 @@
-👋 Hi, I'm Sanskruti Parmeshwar Pawaar!
+👋 Hi, I'm Sanskruti Parmeshwar Pawar!
 
 🔧 I'm currently a student at Savitribai Phule Pune University (SPPU), studying Information Technology.
 
